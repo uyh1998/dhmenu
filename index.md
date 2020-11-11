@@ -28,6 +28,6 @@
 
 ## 2
 ### 화이트 러시안
-![YDH04586](https://user-images.githubusercontent.com/73837890/98834439-8e7f7c00-2482-11eb-8841-8255af0c5fe1.jpg)
+![YDH05413-3](https://user-images.githubusercontent.com/73837890/98834416-88899b00-2482-11eb-8aa6-5e1c68ebd92f.jpg)
 
 ## 3
