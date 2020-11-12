@@ -29,5 +29,13 @@
 ## 2
 ### 화이트 러시안
 ![YDH05413-3](https://user-images.githubusercontent.com/73837890/98834416-88899b00-2482-11eb-8aa6-5e1c68ebd92f.jpg)
+#커피 #보드카 #생크림
 
 ## 3
+### 블루스카이
+![KakaoTalk_20201112_022656829](https://user-images.githubusercontent.com/73837890/98948172-7159b480-2539-11eb-9806-f0db1dd567c1.jpg)
+#보드카 #오렌지 #베일리스
+### B-52
+![Screenshot_20201112-022236_Video Player](https://user-images.githubusercontent.com/73837890/98948023-40797f80-2539-11eb-8ca3-68ea812dcdc7.jpg)
+#커피 #카라멜 #오렌지
+
